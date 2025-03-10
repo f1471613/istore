@@ -7,3 +7,5 @@ Business Case sobre el Indicador Mensual de la Tasa de Buyback en iStore (Produc
 ![Image](https://github.com/user-attachments/assets/2bee9ba8-98b7-4552-9438-6dc2a8b79fce)
 
 ![Image](https://github.com/user-attachments/assets/a3f5a708-93ec-4e0b-a023-f3fd340b8954)
+
+![Image](https://github.com/user-attachments/assets/6a7489d8-2648-46d3-b05e-f3617380989e)
